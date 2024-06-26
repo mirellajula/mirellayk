@@ -8,5 +8,7 @@ Boas vindas ao meu perfil 💜⚛
 
 • Você pode entrar em contato comigo 📫:
   antochevis.mirella@escola.pr.gov.br
+  
+   ![]![unnamed](https://github.com/mirellajula/mirellayk/assets/172789896/df2087a3-2a4a-446a-bde8-e11f2a3a55d4)
 
   
